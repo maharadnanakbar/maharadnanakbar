@@ -81,8 +81,8 @@ Advisory documents are **not** a replacement for labelled training photos. Both 
 
 **Akbar Sons Agro Traders** — Near Jazz Tower, Chak No. 173 TDA, Layyah, Punjab, Pakistan
 
-- 📱 WhatsApp: 0305-1173173
-- 📞 Call: 0341-1587804
+- 📱 WhatsApp: 0344-7113080
+- 📞 Call: 0344-7113080
 - 🛒 Agri Mall POS sales & support: 0344-7113080
 
 *Developed by Mahar Adnan Akbar.*
