@@ -1,4 +1,4 @@
-# Hi, I'm MAHARSPACE 👋
+# Hi, I'm maharadnanakbar 👋
 
 **Building Agri Mall — free and affordable software for Pakistani farmers and agro shops.**
 
